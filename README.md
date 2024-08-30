@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning full stack
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me https://www.instagram.com/?hl=en
+- 📫 How to reach me https://www.instagram.com/preetam._.lolugu/?hl=en
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Bananas are technically berries, but strawberries aren't!
 
